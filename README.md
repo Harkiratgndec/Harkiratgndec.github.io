@@ -16,6 +16,11 @@ Certainly! Here's a more polished and detailed version of the information for yo
 - Making Animated Videos
 - Playing Cricket, Kabaddi, and Badminton
 
+# Excel-course-for-beginners-
+I have completed my excel course for beginners.
+link of my greatlarning excel certificate 
+https://olympus.mygreatlearning.com/courses/12583/certificate
+
 **Athletic Achievements:**
 - **Shot Put:** 2nd Position at Zone Level
 - **Long Jump:** 2nd Position at School Level
